@@ -8,8 +8,6 @@
 <p align="center"><strong>۶ৎ    She/Her ; [Though I only like someone older] </strong></p>
 <p align="center"><strong>𓂃۶ৎ   Asian </strong></p>
 <p align="center">
-
-
 ⠀<p align="center">⠀⠀
  <img src="https://i.postimg.cc/pV77TvXG/strawberry-milk-original-removebg-preview.png" alt="Description" width="500">
 </p>
