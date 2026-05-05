@@ -1,3 +1,3 @@
 ## Hi there 👋
 <p align="center">
-  <img src="https://i.postimg.cc/2ybfdbPV/image-removebg-preview.png" alt="Description" width="500">
+  <img src="[url=https://postimages.org/][img]https://i.postimg.cc/gJ25wkZX/cat-berry-removebg-preview.png[/img][/url]" alt="Description" width="500">
