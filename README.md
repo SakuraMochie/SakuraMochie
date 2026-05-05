@@ -19,6 +19,7 @@
 </p> 
 </p> 
 </p> 
+<p align="center"><strong>⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ </strong></p>
 <p align="center"><strong>but I’d rather be real than easy to understand ♡ stay if you like soft chaos and quiet loyalty ,leave if you need to—I’ll still be okay.</strong></p> 
 </p> 
 </p> 
