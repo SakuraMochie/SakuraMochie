@@ -9,7 +9,9 @@
  <img src="https://i.postimg.cc/pV77TvXG/strawberry-milk-original-removebg-preview.png" alt="Description" width="500">
 </p>
 <p align="center"><strong>I’ve been called angry, arrogant, impossible — and maybe they’re right. But at least I’m honest. Every scar, every explosion, every broken thing I’ve built back — it’s all mine. I don’t hide from what I am, even if it scares people off. If you can’t handle the heat, the noise, or the silence that comes after it — leave now. I won’t chase you.</strong></p>
-
+</p>
+</p>
+<p align="center"><strong>⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ </strong></p>
 <p align="center"><strong> Just a pastel-hearted human trying to survive and vibe.</strong></p> 
 <p align="center"><strong> I get attached to little things, laugh at dumb jokes, and think too much at night.</strong></p> 
 <p align="center"><strong> My energy can be soft one moment and a little chaotic the next.</strong></p> 
