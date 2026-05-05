@@ -18,4 +18,7 @@
 </p> 
 </p> 
 <p align="center"><strong>but I’d rather be real than easy to understand ♡ stay if you like soft chaos and quiet loyalty ,leave if you need to—I’ll still be okay.</strong></p> 
+</p> 
+</p> 
+<p align="center">
  <img src="https://i.postimg.cc/XqZz8Hxd/removebg-preview.png" alt="Description" width="500">
