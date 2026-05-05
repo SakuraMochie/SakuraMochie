@@ -11,5 +11,5 @@
 
 
 ⠀<p align="center">⠀⠀
- <img src="[https://i.postimg.cc/gJ25wkZX/cat-berry-removebg-preview.png]" alt="Description" width="500">
-    ⠀⠀
+ <img src="https://i.postimg.cc/pV77TvXG/strawberry-milk-original-removebg-preview.png" alt="Description" width="500">
+</p>
