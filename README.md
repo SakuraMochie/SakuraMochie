@@ -2,7 +2,6 @@
 <p align="center">
   <img src="https://i.postimg.cc/gJ25wkZX/cat-berry-removebg-preview.png" alt="Description" width="500">
 </p>
-</p>
 </p> 
 <p align="center"><strong>𓂃۶ৎ You can call me Mochi, I am an adult  </strong></p>
 <p align="center"><strong>۶ৎ    She/Her ; [Though I only like someone older] </strong></p>
